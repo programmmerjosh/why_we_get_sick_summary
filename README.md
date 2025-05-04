@@ -12,7 +12,7 @@ What we do NOT want (what is *BAD* for the body):
 
 ---
 
-## Chapter 14: Get Moving — The Importance of Physical Activity
+## Chapter 14: Get Moving — The Importance of Physical Activity 🏄‍♂️
 
 ### The Function of Insulin in the Body
 - Insulin opens the doors to escort glucose from the blood to the various parts of the body, such as the brain, heart, muscles and fat tissue.
@@ -28,7 +28,7 @@ What we do NOT want (what is *BAD* for the body):
 
 So, because movement (the contracting of muscles) doesn’t require insulin, our blood-insulin naturally lowers during and shortly after exercise.
 
-### Exercise Recommendations
+### Exercise Recommendations 🏋️‍♀️
 - **Combine resistance and aerobic training** for maximum benefit.
 - Resistance training, even **twice weekly**, can improve insulin sensitivity.
 - **Higher intensity** training leads to greater benefits.
@@ -36,7 +36,7 @@ So, because movement (the contracting of muscles) doesn’t require insulin, our
 - As fitness improves, the body uses **more fat at higher intensities**.
 - **Frequency matters less** than training to failure.
 
-### Additional Tip
+### Additional Tip ❄️
 - **Cold exposure** can help regulate insulin levels.
 
 ---
@@ -47,43 +47,43 @@ So, because movement (the contracting of muscles) doesn’t require insulin, our
 - Restricting calories can cause **insulin resistance** ❌ (What we do NOT want).
 - Calorie restriction lowers **thyroid hormones**, worsening insulin resistance. Thyroid hormones maintain insulin signalling. Thus, the drop in thyroid hormones leaves the body in a more insulin resistant state.
 
-### Smart Eating Practices
+### Smart Eating Practices 🍜
 - Eat **starchy foods at the end** of meals to lessen insulin spikes.
 - **Soluble fiber** (from fruits and certain vegetables) is especially beneficial.
 
 *Elevated insulin is one of the most relevant factors in inducing insulin resistance.*
 
-### Fasting Benefits
+### Fasting Benefits 🤐
 - Monthly **24-hour fasts** cut insulin resistance risk in half.
 Many of the benefits of fasting are caused by hormones.
 Insulin levels drop during a fast, but also insulin’s opposite (glucagon) rises.
 
-### Timing Matters
+### Timing Matters ⏰
 - Breakfast content impacts insulin more than any other meal.
 - Skipping breakfast may help with insulin resistance.
 - **Fat tissue is more insulin-sensitive in the morning.**
 
 ---
 
-### Carbohydrate and Fat Insights
+### Carbohydrate and Fat Insights 
 
 *Current and long standing studies show overwhelming evidence that carbohydrate restriction, prevents insulin resistance (or improves insulin sensitivity).*
 
-#### Carbohydrate Quality
+#### Carbohydrate Quality 🥐
 - Not all carbs are equal — focus on **glycemic load (GL)**, not glycemic index (GI).
 - A **low GL** means a more favorable insulin response. ✅
 - Insulin sensitivity always tends to increase with a low-carb diet. ✅
 
 *In fact, many studies showed that calorie-unrestricted, low-carb diets, yielded the best results for insulin sensitivity.*
 
-#### Fat Quality
+#### Fat Quality 🥓
 - **Animal fats** contain a mix of saturated, mono-, and poly-unsaturated fats.
 - Replacing saturated fats with **industrial polyunsaturated oils** (like soybean or corn oil) can be harmful.
 - **Flaxseed oil (ALA)** improves insulin sensitivity.
 
 ---
 
-## Low-Carb, High-Fat & Ketogenic Diets
+## Low-Carb, High-Fat & Ketogenic Diets 🥩
 
 ### Key Effects
 - Increases the number of mitochondria in the cell - where fats are broken down. 
@@ -95,7 +95,7 @@ Insulin levels drop during a fast, but also insulin’s opposite (glucagon) rise
 - **Ketones don't need insulin**, making them brain- and metabolism-friendly.
 - They also **activate brown fat** and promote fat burning.
 
-*Blood pressure: Some traditionalists contend that a high fat diet promotes high blood pressure, but the evidence indicates the opposite.*
+🩸 *Blood pressure: Some traditionalists contend that a high fat diet promotes high blood pressure, but the evidence indicates the opposite.*
 
 ### Health Benefits
 - Lower **blood pressure**, triglycerides, and raise HDL cholesterol.
@@ -103,18 +103,18 @@ Insulin levels drop during a fast, but also insulin’s opposite (glucagon) rise
 - May improve **cognitive function** in Alzheimer's patients.
 - Help reduce or eliminate **migraines** and **heartburn**.
 
-*High fat diet groups tend to have the largest drop in blood pressure (4 times lower than the low fat group), in addition, they had the greatest drop in triglycerides and the greatest increase in HDL (good cholesterol).*
+🩸 *High fat diet groups tend to have the largest drop in blood pressure (4 times lower than the low fat group), in addition, they had the greatest drop in triglycerides and the greatest increase in HDL (good cholesterol).*
 
-*A high fat diet seemed to be good for a woman’s reproductive health.*
+🤰 *A high fat diet seemed to be good for a woman’s reproductive health.*
 
-*Putting men on a low fat diet, significantly reduces testosterone. Simple solution = let men eat more fat!*
+💪 *Putting men on a low fat diet, significantly reduces testosterone. Simple solution = let men eat more fat!*
 
-*A study was done on Alzheimers patients and found that the one eating a low-carb, high fat diet improved their cognitive function.
+🧐 *A study was done on Alzheimers patients and found that the one eating a low-carb, high fat diet improved their cognitive function.
 This might be evidence that the brain prefers ketones to glucose, for fuel. One reason might be that ketones don’t need insulin. And if the brain becomes insulin resistant, then there’ll be less of a supply of glucose needed for fuel.*
 
-*People who suffer from migraine headaches apparently can also reduce the severity of it or eliminate them completely by adopting a carb-restricted, high-fat diet.*
+🧠 *People who suffer from migraine headaches apparently can also reduce the severity of it or eliminate them completely by adopting a carb-restricted, high-fat diet.*
 
-*Heart burn -> almost immediate reduction and/or elimination of heart burn by adopting a carb-restricted, high-fat diet.*
+❤️ *Heart burn -> almost immediate reduction and/or elimination of heart burn by adopting a carb-restricted, high-fat diet.*
 
 ---
 
