@@ -7,7 +7,7 @@
 ## Chapter 14: Get Moving — The Importance of Physical Activity
 
 ### The Function of Insulin in the Body
-- Insulin helps escort glucose from the blood into tissues like the brain, heart, muscles, and fat.
+- Insulin helps escort glucose from the blood into tissues like the brain, heart, muscles, and fat tissue.
 - This process is essential to normalize blood glucose levels.
 
 ### How Physical Activity Helps
